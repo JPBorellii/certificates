@@ -10,6 +10,13 @@ Sinta-se à vontade para navegar. Todo o conteúdo está categorizado por área 
 
 ---
 
+LinkedIn: www.linkedin.com/in/joaopauloborelli
+Credly: https://www.credly.com/users/joao-paulo-silva-borelli
+E-mail: joaopauloborelli@gmail.com
+E-mail: jpborelli33@gmail.com
+
+---
+
 ### **Obrigado pela visita!**
 Espero que esta organização detalhada ajude a comprovar minhas habilidades técnicas.
 
